@@ -1,3 +1,1 @@
 # Melhores atletas
-
-Airton Senna
